@@ -1,1 +1,0 @@
-# Quiz1-Electricity-Consumption-.-Ibrahim
